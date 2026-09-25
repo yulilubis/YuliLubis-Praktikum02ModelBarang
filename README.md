@@ -1,0 +1,2 @@
+# YuliLubis-Praktikum02ModelBarang
+
